@@ -1,1 +1,1 @@
-Web Conference de Maravilha-Bambi
+Web Conference de Maravilha Bambi
